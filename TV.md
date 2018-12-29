@@ -51,11 +51,14 @@ Much is made about _Better Call Saul_’s deliberate process of transforming Jim
 
 #### 3 利器 Sharp Object Season 1
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2529070284.jpg)
-有些人会抱怨「利器」节奏太拖，但这正是我迷恋它的地方。弥漫着浓雾，潮湿阴暗的密苏里小镇里，有着太多Some people complained that _Sharp Objects_ moved too slowly, but that’s exactly what other people loved about it. Every Sunday night for eight weeks, the show offered a dark, humid tour of Wind Gap, Missouri, where actual monsters lurked closer than its residents could have ever imagined. Amy Adams transformed into our simultaneously reliable/unreliable guide into this Southern gothic madness, her reporter Camille steadily unwinding, sipping vodka out of plastic water bottles and trying to cobble facts together about the unexplained deaths of girls in her hometown. Camille had plenty of her own internal demons to fight, preparing her to take on the mysterious external ones coating Wind Gap’s falsely sunny exterior. The fact that Camille was living in the amusement park scare house of her childhood home only exacerbated the dangers in every corner, a place where motherhood meant the exact opposite of what it should have, where every organized detail of interior decoration hinted at a corresponding evil. _Sharp Objects_ was a summer journey like no other, topped off by a mic drop of an ending that even startled those who’d read Gillian Flynn’s source novel; those who hadn’t had a hard time recovering.
+有些人会抱怨「利器」节奏太拖，但这正是我迷恋它的地方。弥漫着浓雾，潮湿阴森的密苏里小镇里，少女被残忍杀害，就此流言就像病毒一样肆意传播。我们跟着艾米·亚当斯去探访这里所有一切的秘密，但向导却在过程中把我们带入另一种疯狂。关于母爱，关于家庭，「利器」给出的答案无出其右。剧集播放的8周刚好贯穿了这个夏天，而因为「利器」的存在，我在周一晚倍感凉意。
+
+推荐心理惊悚爱好者去看「利器」，而如果你同样看过「消失的爱人」，你大概能够get到原著作者弗琳的点。而如果你喜欢「真探」第一季，那么你大概率也会喜欢「利器」。凶杀只是一个结果，抽丝剥茧过后，人心的复杂，情绪的积累所造成的后果和心理创伤远比凶杀案本身更为致命。
 
 #### 2 我的天才女友 My Brilliant Friend Season 1
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2527840993.jpg)
-从一开始「我的天才女友」就有着神剧的潜质，HBO出品，那不勒斯四部曲改编，美意合拍。而第一集播出伊始，摄影和布景就把我带回了90年代托纳多雷的那些经典电影里。
+从一开始「我的天才女友」就有着神剧的潜质，意大利语，那不勒斯四部曲改编，美意合拍，这些异国情调的元素前所未见的融入到了这部HBO的新剧里。而第一集播出伊始，摄影和布景就成功把我带回了90年代托纳多雷的那些经典电影里，从此跟着一段传奇的友情。
+
 剧集播出的这段时间曾看到过两篇文章。一篇强调原著对剧集的影响，坚称剧集并未体现出原著的精华，另一篇却从影像的角度分析剧集之于原著的全方位提高。我没看过原著，也无意去作对比，但编剧手法所营造的文学感却是从一开始就为剧集加分不少。我相信很多人和我一样，喜欢「我的天才女友」有一个原因，就是在美日文化大行其道的当下，看到这部剧就像看到一股清流，
 
 #### 1 美国谍梦 The Americans Season 6
@@ -71,5 +74,5 @@ Much is made about _Better Call Saul_’s deliberate process of transforming Jim
 请原谅我文字的语无伦次，
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNjgxMTk3NjYzXX0=
+eyJoaXN0b3J5IjpbLTMwNzQ1NDY4NF19
 -->

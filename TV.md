@@ -4,7 +4,7 @@
 
 #### 10 风骚律师 Better Call Saul Season 4
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2530384714.jpg)
-第四季的律师整季都笼罩在查尔斯之死的阴霾之下，一如吉米的律师生涯一样，撕开了一个再也无法愈合的伤口。我本以为吉米转变为索尔的进程会更慢一些，但这是毒师的团队，一群节奏掌控的魔鬼，在最一触即发的位置按下高潮键，在最意犹未尽的时候再按下停止键。我们，炸鸡叔的超级制作室可能才刚刚成形，但这不影响风骚律师继续调制出当季最纯的Drama。
+第四季的律师整季都笼罩在查尔斯之死的阴霾之下，一如吉米的律师生涯一样，撕开了一个再也无法愈合的伤口。我本以为吉米转变为索尔的进程会更慢一些，但这是毒师的团队，一群节奏掌控的魔鬼。在最一触即发的位置按下高潮键，在最意犹未尽的时候再按下停止键。只留下一群唏嘘不已的观众对着屏幕出神。在今年，Kim和炸鸡叔的超级制作室可能才刚刚成形，但这不影响风骚律师继续调制出当季最纯的Drama。
 Much is made about _Better Call Saul_’s deliberate process of transforming Jimmy McGill (Bob Odenkirk) into Saul Goodman, but the [_Breaking Bad_](https://www.avclub.com/c/tv-review/breaking-bad)  prequel really seems to have cracked the formula for prestige-drama momentum circa 2018. The montages help, speeding Jimmy, Kim (Rhea Seehorn), Mike (Jonathan Banks), and their associates on both sides of the law through everyday tasks and outrageous schemes via glittering confections of split screens, needle drops, and sharp editing. But the show also hums along with an all-too-rare sense of when to switch gears (Tony Dalton’s arrival as the unhinged head the Salamanca hydra tossed up late in the season), rely on established patterns (Kim’s inability—rendered so poignantly, recognizably, and compellingly by Seehorn—to quit Jimmy or their shared love of the grift), or foreshadow its beloved predecessor (Mike committing a murder that eerily echoes his own). Most impressive in this age of lumpy, too-many-episodes-not-enough-story dramas: Season four’s management of its thematic fuel, with the characters propelled to the bitter end by their grief over the death of Charles McGill and a funhouse-mirror reflection of that loss in Gus’ (Giancarlo Esposito) and Nacho’s (Michael Mando) maneuvers around an incapacitated Don Hector (Mark Margolis). Gus’ grand plan has only yielded a shell of a super-lab thus far, but _Better Call Saul_ was cooking high-grade shit all fall.
 
 #### 9 希尔达 Hilda Season 1
@@ -19,7 +19,7 @@ Much is made about _Better Call Saul_’s deliberate process of transforming Jim
 ![enter image description here](https://img1.doubanio.com/view/photo/raw/public/p2513158099.jpg)
 35岁的格洛沃近两年作品的爆发看得我是目瞪口呆，音乐上提名格莱美年度最佳专辑不说，一首*This Is America*连带着MV成了YouTube年度数一数二的话题。星战外传里他饰演兰多成了全片唯一的亮点。而他主导的剧集亚特兰大在艾美金球都受到了最高褒奖。这么个多栖开花的创作者，我也总算是理解了当初他为什么要离开废柴联盟的剧组，说到底还是庙太小。
 
-第二季的亚特兰大副标题 *Robbin'*，随便单拎一集都是一年的难忘，格洛沃挑战了荒诞喜剧和严肃正剧，融入了惊悚，超现实甚至是 元素，其中最精彩的几集都可以独立成章，三位主角分别参与的三集，理发店 单集的荒诞程度不亚于， 泰德帕金斯 的惊悚和精妙让我想起逃出绝命镇但又远超后者，最后一集甚至直接默片
+第二季的亚特兰大副标题 *Robbin'*，随便单拎一集都是一年的难忘，格洛沃挑战了荒诞喜剧和严肃正剧，融入了惊悚，超现实甚至是 元素。其中最精彩的几集都可以独立成章，三位主角分别参与的几集，理发店 单集的荒诞程度不亚于， 泰德帕金斯 直接把观众舒适区抛在脑后，FUBU梦回少时，螃蟹 甚至直接致敬起默片。最重要的是在如此概念先行的风格内，亚特兰大依然完成了主线叙事的统一，嘻哈元素一直是剧集的基石，但经历了第一季的洗礼，这一季Alfred刻意寻求了自身嘻哈属性的变化，但身为黑人，不靠音乐，在这座城市，能走多远， *Robbin'*一次又一次的给出了回应。
 
 
 #### 7 上周今夜秀 The Last Week Tonight with John Oliver Season 5
@@ -32,14 +32,17 @@ Much is made about _Better Call Saul_’s deliberate process of transforming Jim
 
 #### 6 马男波杰克 Bojack Horseman Season 5
 ![enter image description here](https://img1.doubanio.com/view/photo/raw/public/p2534170739.jpg)
-谁能想到五季放完，马男依然是我当年度最喜欢的动画，每年我都会从反感这个不着调的马脸开始，到最后被他的鸡汤灌醉丧上好一阵子。五年了，我依然能从有缺陷，但一直在成长的马男身上看到人性和自己。
-Unlike its paunchy protagonist, _BoJack Horseman_ shows no signs of wear and tear or dwindling relevance after five seasons. In fact, the newest episodes of Raphael Bob-Waksberg’s animated series offer its most sophisticated storytelling and scathing satire yet, as well as a career-best performance from Will Arnett, whose whiskey-ed voice remains the perfect timbre for despairing of celebrity culture. As usual, nothing and no one is sacred: not small-screen auteurs, journalism, or tech behemoths that are seemingly on the verge of achieving nationhood. But there’s never the sense that _BoJack_ is merely scoring points with its skewering, though there is a point to everything, including the omnipresent visual gags. The show has always been taking shots from inside the Hollywoo(d) Hills/trenches, which made it the perfect forum for a discussion about serial abusers and reform. And in one of its most rewarding developments, that look at broader progress turned into a real step forward for BoJack. So yes, after five seasons, a cartoon horse remains one of the best examples of our flawed but ever-evolving humanity.
+谁能想到五季放完，马男依然是我当年度最喜欢的动画。在电视动画的语境内，其实很难找到马男的同类，即便辛普森和恶搞之家有类似的讽刺属性，马男仍然是成人向动画里最特殊的一个。
+
+在第五季这个时间点，「马男」仍一直在探索着电视动画之于观念艺术的边界，这是Waksberg的胜利，也是Netflix的成就。第二集戴安在越南的心灵之旅回响着第二代移民共同的身份认同之殇。第六集马男在“母亲”葬礼上完成了30分钟的悼词，编剧在这么多年后仍然在探索马男复杂阴暗面的下限。第九集马男试图与女儿重修于好，但破碎的过去却因此更加破碎。神奇的是，威尔·阿内特的声音也在这5年里完成了蜕变，从那个逃不出乐高里的老爷蜕变为忧郁善变的马男。
+
+现在想想，好像每年我都会从反感这个不着调的马脸开始，到最后被他的威士忌灌醉丧上好一阵子。五年了，无论经过多少次的选择，多少次低谷，我依然能从这个满是缺陷，但一直在成长的马男身上看到人性和自己。
 
 #### 5 安东尼·波登：未知之旅 Anthony Bourdain Parts Unknown Season 12
 ![enter image description here](https://explorepartsunknown.com/wp-content/uploads/2018/06/AB1_iii.jpg)
 上图来自于CNN「未知之旅」节目的主页，我其实很想聊聊这档美食旅行节目本身，但我发现我绕不开托尼（波登）的自杀。很大程度上，托尼在他20年间写的所有书和主持的所有节目里都烙印上了深深的个人印记，我们无法绕开他去聊这些旅程，因为这些旅程、故事、美食最大的魅力来源于托尼这个人。时至2018的年末，我看了几十篇关于他的文章，补了包括第十二季在内的三季「未知之旅」，看了「厨师机密」这本畅销书。我妄想就此瞥见安东尼·波登的内心，但让人泄气的是无论荧幕上他的乐观，激情以及对这个世界的感激是多么具有感染力，荧幕外他依然是一个谜。我想从粉丝的角度记录我对托尼的追忆已经有很久了，但这需要一个合适的时机和心境，而且，那是另一个话题了。
  
-2013年在获得Peabody奖时，颁奖词写到: 「安东尼·波登的未知之旅在相同量度下扩展了我们的味蕾和视野。」这或许就是最精炼的关于这节目意义的回答了。托尼曾说过未知之旅就是到世界的各个角落去向当地人问些最简单的问题。什么让你开心？你平常吃些什么？你喜欢烹调吗？而「未知之旅」最好的那些集数几乎都与食物本身无关，例如当托尼去到肯尼亚，去到贝鲁特，去到汤加，去到利比亚，那儿会有太多食物以外值得发掘的事物，而那些最简单的问题往往会得到惊人的回答。不会再有第二个人去访问肯尼亚的同性艺术家团体，与他们讨论肯尼亚同性群体的处境。也不会再有第二个人不以记者的身份到利比亚战区与难民坐在一起聊生存状态，而这些独一无二却是托尼节目的日常。即便是去到欧美大国的旅程，我们也能在摄影机里看见平凡人不平凡的努力。节目最让我动容的永远都是托尼用最最真诚的方式去看待理解这个世界，而他的离去也带走了这个世界上最不羁，最温柔的灵魂。
+2013年在获得Peabody奖时，颁奖辞写到: 「安东尼·波登的未知之旅在相同量度下扩展了我们的味蕾和视野。」这或许就是最精炼的关于这节目意义的回答了。托尼曾说过未知之旅就是到世界的各个角落去向当地人问些最简单的问题。什么让你开心？你平常吃些什么？你喜欢烹调吗？而「未知之旅」最好的那些集数几乎都与食物本身无关，例如当托尼去到肯尼亚，去到贝鲁特，去到汤加，去到利比亚，那儿会有太多食物以外值得发掘的事物，而那些最简单的问题往往会得到惊人的回答。不会再有第二个人去访问肯尼亚的同性艺术家团体，与他们讨论肯尼亚同性群体的处境。也不会再有第二个人不以记者的身份到利比亚战区与难民坐在一起聊生存状态，而这些独一无二却是托尼节目的日常。即便是去到欧美大国的旅程，我们也能在摄影机里看见平凡人不平凡的努力。节目最让我动容的永远都是托尼用最最真诚的方式去看待理解这个世界，而他的离去也带走了这个世界上最不羁，最温柔的灵魂。
 
 
 #### 4 堕落街传奇 The Deuce Season 2
@@ -48,25 +51,25 @@ Unlike its paunchy protagonist, _BoJack Horseman_ shows no signs of wear and tea
 
 #### 3 利器 Sharp Object Season 1
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2529070284.jpg)
-利器Some people complained that _Sharp Objects_ moved too slowly, but that’s exactly what other people loved about it. Every Sunday night for eight weeks, the show offered a dark, humid tour of Wind Gap, Missouri, where actual monsters lurked closer than its residents could have ever imagined. Amy Adams transformed into our simultaneously reliable/unreliable guide into this Southern gothic madness, her reporter Camille steadily unwinding, sipping vodka out of plastic water bottles and trying to cobble facts together about the unexplained deaths of girls in her hometown. Camille had plenty of her own internal demons to fight, preparing her to take on the mysterious external ones coating Wind Gap’s falsely sunny exterior. The fact that Camille was living in the amusement park scare house of her childhood home only exacerbated the dangers in every corner, a place where motherhood meant the exact opposite of what it should have, where every organized detail of interior decoration hinted at a corresponding evil. _Sharp Objects_ was a summer journey like no other, topped off by a mic drop of an ending that even startled those who’d read Gillian Flynn’s source novel; those who hadn’t had a hard time recovering.
+有些人会抱怨「利器」节奏太拖，但这正是我迷恋它的地方。弥漫着浓雾，潮湿阴暗的密苏里小镇里，有着太多Some people complained that _Sharp Objects_ moved too slowly, but that’s exactly what other people loved about it. Every Sunday night for eight weeks, the show offered a dark, humid tour of Wind Gap, Missouri, where actual monsters lurked closer than its residents could have ever imagined. Amy Adams transformed into our simultaneously reliable/unreliable guide into this Southern gothic madness, her reporter Camille steadily unwinding, sipping vodka out of plastic water bottles and trying to cobble facts together about the unexplained deaths of girls in her hometown. Camille had plenty of her own internal demons to fight, preparing her to take on the mysterious external ones coating Wind Gap’s falsely sunny exterior. The fact that Camille was living in the amusement park scare house of her childhood home only exacerbated the dangers in every corner, a place where motherhood meant the exact opposite of what it should have, where every organized detail of interior decoration hinted at a corresponding evil. _Sharp Objects_ was a summer journey like no other, topped off by a mic drop of an ending that even startled those who’d read Gillian Flynn’s source novel; those who hadn’t had a hard time recovering.
 
 #### 2 我的天才女友 My Brilliant Friend Season 1
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2527840993.jpg)
-从一开始「我的天才女友」就有着神剧的潜质，HBO出品，那不勒斯四部曲改编，美意合拍。第一集播出伊始，摄影和布景就把我带回了90年代托纳多雷的那些经典电影里。
-剧集播出的这段时间曾看到过两篇文章，一篇，我没看过原著，也无意去作对比，但剧集所营造的文学感却是
+从一开始「我的天才女友」就有着神剧的潜质，HBO出品，那不勒斯四部曲改编，美意合拍。而第一集播出伊始，摄影和布景就把我带回了90年代托纳多雷的那些经典电影里。
+剧集播出的这段时间曾看到过两篇文章。一篇强调原著对剧集的影响，坚称剧集并未体现出原著的精华，另一篇却从影像的角度分析剧集之于原著的全方位提高。我没看过原著，也无意去作对比，但编剧手法所营造的文学感却是从一开始就为剧集加分不少。我相信很多人和我一样，喜欢「我的天才女友」有一个原因，就是在美日文化大行其道的当下，看到这部剧就像看到一股清流，
 
 #### 1 美国谍梦 The Americans Season 6
 ![enter image description here](https://i.kinja-img.com/gawker-media/image/upload/s--_gRTxDf1--/c_scale,f_auto,fl_progressive,q_80,w_1600/wzxi26xl8hgl5j8sucri.jpg)
 
-其实最后一刻我还在纠结「我的天才女友」的排名，因为从对我个人2018的影响来说，未知之旅和利器无疑更胜一筹，但无论我如何纠结出最后的这份榜单，「美国谍梦」的位置却从来没有因此动摇过。
+其实最后一刻我还在纠结「我的天才女友」的排名，因为从对我个人2018的影响来说，「未知之旅」和「利器」无疑更胜一筹，但无论我如何纠结出最后的这份榜单，「美国谍梦」的位置却从来没有因此动摇过。
 
 2018年有很多故事让我伤心让我凝噎，但唯一让我控制不住泪腺的只有美国谍梦，最终集让我在第三遍去看的时候依然泪流满面。在此之前，我相信自己可以在任何场合止住眼泪夺眶，显然，我想多了。
 
-谍梦注定是名垂青史的，倘若没有这个让我止不住大喊Wow的结局，它也一定会成为电视史上浓墨重彩的一笔。它和绝命毒师就像火线和黑道家族
+谍梦注定是名垂青史的，倘若没有这个让我止不住大喊Wow的结局，它也一定会成为电视史上浓墨重彩的一笔。可惜的是它没有「绝命毒师」那样的福气，把剧终播出成文化狂欢。它和「绝命毒师」就像「火线」和「黑道家族」，成就了一个伟大时代的“台前”与“幕后”。
 
-A TV show is not its ending. A TV show is not its ending. A TV show is not its ending. And with that out of the way: wow,  It would have to be, with all the work  _The Americans_ did to get there, and all the fuses it laid across six seasons of espionage drama: across tensions between married spies that were as fraught as those between Cold War superpowers, through familial bonds and friendships secretly colored by hidden loyalties, under a soundtrack of the most anxious hit songs of the ’70s and ’80s. The sixth season still held off on its biggest bang—and Noah Emmerich’s shining moment as duped G-man Stan Beeman—for as long as it could, but it was proceeded by a series of smaller detonations that shook the faith of Soviet sleeper agent Elizabeth Jennings (Keri Russell) and stirred her semi-retired husband, Philip (Matthew Rhys), back into action (albeit to spy on Elizabeth). It’s payoff like this that has persuaded so many other, lesser shows to chase the dragon of serialization; it takes a show of  _The Americans_’ caliber to get that payoff while simultaneously tending to the complex dynamics under the Jennings’ roof, the global stakes of its macro conflicts, and a sense of characterization strong enough to make an antiquated mail-delivery device one of the most beloved members of its cast.
+谍梦可能是电视黄金时代里最慢热的一部，这导致有太多观众没有办法静心去欣赏它，这其中也包含了那些艾美评审们。6年里，18次提名艾美，却在每次颁奖夜被忽略了个彻底。今年剧终集拿下编剧奖算是对Joe和Joel付出的回报，但Keri和Matthew
+请原谅我文字的语无伦次，
 
-Until the very end,  _The Americans_’ many disguises and aliases raised gripping questions about its characters’ true natures: Had they aligned themselves with a cause they were willing to kill themselves (and most of the world’s population) for? Was the disparity between the United States and the Soviet Union as pronounced as their respective citizens were led to believe? Could these people live with or without one another? Not every tantalizing query gets a satisfying answer, despite the show’s deeply satisfying conclusion; you’ll just have to spend the rest of your life agonizing over whether or not Renee is a spy.  _The Americans_’ identity as the best show of 2018, however, was never in doubt.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTIyNTIxNTMyOF19
+eyJoaXN0b3J5IjpbNjgxMTk3NjYzXX0=
 -->

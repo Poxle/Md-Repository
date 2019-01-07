@@ -6,6 +6,9 @@ Velvet Elvis
 Space Cowboy
 Wonder Woman
 
+Mitsky
+
+
 
 Mac Miller
 推荐曲目：
@@ -19,5 +22,5 @@ Snail Mail
 Pristine
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTkyOTU3NDAxNF19
+eyJoaXN0b3J5IjpbMTYxMTE2MDE1NywxOTI5NTc0MDE0XX0=
 -->

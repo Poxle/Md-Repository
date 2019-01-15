@@ -4,7 +4,7 @@
 
 #### 10 风骚律师 Better Call Saul Season 4
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2530384714.jpg)
-第四季的律师整季都笼罩在查尔斯之死的阴霾之下，一如吉米的律师生涯一样，撕开了一个再也无法愈合的伤口。我本以为吉米转变为索尔的进程会被拖地更慢一些，但这是毒师的团队，一群节奏掌控的魔鬼，我们都知道Kim最终消失在了老白的时间线里，但仍盼望着时候到了，任何人也无力阻止那句It's all good, man被说出。我们作为观众好像在经历了这么久只留下一群唏嘘不已的观众对着屏幕出神。在今年，Kim和炸鸡叔的超级制作室可能才刚刚成形，但这不影响风骚律师继续调制出当季最纯的Drama。
+第四季的律师整季都笼罩在查尔斯之死的阴霾之下，一如吉米的律师生涯一样，撕开了一个再也无法愈合的伤口。我本以为吉米转变为索尔的进程会被拖地得更慢一些，但这是毒师的团队，一群节奏掌控的魔鬼，我们都知道Kim最终消失在了老白的时间线里，但仍盼望着时候到了，任何人也无力阻止那句It's all good, man被说出。我们作为观众好像在经历了这么久只留下一群唏嘘不已的观众对着屏幕出神。在今年，Kim和炸鸡叔的超级制作室可能才刚刚成形，但这不影响风骚律师继续调制出当季最纯的Drama。
 
 #### 9 希尔达 Hilda Season 1
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2533939911.jpg)
@@ -78,5 +78,6 @@
 请原谅我文字的语无伦次，因为谍梦带给我的碎片记忆和绵延的冲击让我无法理智的去组织这段感想。如果你恰巧看到了最后，无论何时何地，祝福你也能遇见只属于自己的书·影·音。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTEzMjA1NDQ1LC0zMDc0NTQ2ODRdfQ==
+eyJoaXN0b3J5IjpbNDA0MDYwMTkwLDkxMzIwNTQ0NSwtMzA3ND
+U0Njg0XX0=
 -->

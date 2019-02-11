@@ -1,6 +1,6 @@
 # TV
 
-> 豆瓣年终报告，45条剧集记录，
+> 豆瓣年终报告，45条剧集记录，看剧的时间依旧碾压了电影的时长，
 
 #### 10 风骚律师 Better Call Saul Season 4
 ![enter image description here](https://img3.doubanio.com/view/photo/raw/public/p2530384714.jpg)
@@ -79,6 +79,6 @@
 请原谅我文字的语无伦次，因为谍梦带给我的碎片记忆和绵延的冲击让我无法理智的去组织这段感想没打算去好好组织语言。如果你恰巧被你看到了最后，无论何时何地，祝福你也能遇见只属于自己的书·影·音说声抱歉了。
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzY2MjQzNDk1LC00NTQ3MTE4NiwtMTgyOT
-U3ODEzOSw5NTA1NzEyMl19
+eyJoaXN0b3J5IjpbLTc5MzYzNDYxMywzNjYyNDM0OTUsLTQ1ND
+cxMTg2LDk1MDU3MTIyXX0=
 -->

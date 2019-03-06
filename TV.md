@@ -35,7 +35,8 @@
 35岁的格洛沃近两年作品的爆发看得我是目瞪口呆，音乐上提名格莱美年度最佳专辑不说，一首<em>This Is America</em>连带着MV成了YouTube年度数一数二的话题。星战外传里他饰演兰多成了全片唯一的亮点。而他主导的剧集亚特兰大在艾美金球都受到了最高褒奖。这么个多栖开花的创作者，我慢慢开始理解当初他为什么要离开《废柴联盟》的剧组，到底还是庙太小。</p>
 第二季的亚特兰大副标题 <em>Robbin</em>'*，随便单拎一集都是一年的难忘，格洛沃挑战了荒诞喜剧和严肃正剧，融入了惊悚，超现实元素。其中最精彩的几集都像精心制作的可以独立成章，三位主角分别参与的几集，「理发店单集的荒诞程度不亚于， 「泰德·帕金斯直接把观众舒适区抛在脑后，FUBU梦回少时，「螃蟹甚至直接致敬默片。最重要的是在如此概念先行的风格下，亚特兰大依然完成了主线叙事的统一，嘻哈元素一直是剧集的基石，但经历了第一季的洗礼，这一季Alfred刻意寻求了自身嘻哈属性的变化，Earl则在颓废而又无奈的处境中夹缝生存。身为黑人的他们，不靠音乐，在这座城市，能走多远， *Robbin’*一次又一次的给出了回应。</p>
 <h4 id="上周今夜秀-the-last-w Week-t Tonight- with-j John-o Oliver-s Season-5">6 上周今夜秀  5
-![The Lasteekonightwithohnlivereason ee<img src="](https://img3.doubanio.com/view/photo/raw/public/p2516871552.jpg" alt="The Last Week Tonight with John Oliver"><br>)
+![The Lasteekonightwithohnlivereason img src="](5</h4>
+<p>https://img3.doubanio.com/view/photo/raw/public/p2516871552.jpg" alt="The Last Week Tonight with John Oliver"><br>)
 第五季的「上周今夜秀」又一次蝉联了艾美奖，约翰·奥利弗又一次串台在Youtube年度回顾里亮相，它也又一次出现在了我的年度最爱里。在电视新闻脱口秀行业巅峰期的当下，这足见LWT对主流的影响力。同去年一样，今年的篇幅有太多关于特朗普政府，我承认，放眼整个世界，美国政治依然是最汇聚眼球的热点，但这都8102年了，我们还是没有办法阻止贸易战的发生，真叫人失望。还好即便如此，这一季里我还是能轻易的找到自己喜欢的集数，关于巴西，伊朗核协议，脸书，加密货币等等的议题可能再无第二人能像囧橄榄一样在短时间内向大众捋清脉络，这也是我为什么时常会劝身边仍对这个世界好奇的朋友放下手中的头条和公号去听听LWT，绝对是高效树立正确价值观的利器。</p>
 <p>
 
@@ -116,5 +117,5 @@
 请原谅我文字的语无伦次，因为谍梦带给我的碎片记忆和绵延的冲击让我无法理智的去组织这段感想没打算去好好组织语言。如果你恰巧被你看到了最后，无论何时何地，祝福你也能遇见只属于自己的书·影·音，说声抱歉了。</p>
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTI3MTU4NTcxOCwxMzc0MDgzMjc1XX0=
+eyJoaXN0b3J5IjpbMjA1OTc0NDQzMCwtMjcxNTg1NzE4XX0=
 -->
